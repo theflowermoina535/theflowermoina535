@@ -1,4 +1,4 @@
-## I like drwa art!
+## I like draw art!
 well I can draw you or you ocXcos
 
 <!--
